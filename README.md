@@ -1,1 +1,1 @@
-C is so sucksssssssss
+C is so hard
